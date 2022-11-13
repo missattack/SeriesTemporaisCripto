@@ -1,0 +1,2 @@
+# SeriesTemporaisCripto
+SeriesTemporaisCripto
